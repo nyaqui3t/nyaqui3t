@@ -1,10 +1,11 @@
-![hi](https://files.catbox.moe/hwmei7.jpg)
-</div/>
-<img width="736" height="68" alt="ไม่มีชื่อ 3_20260116182118" src="https://github.com/user-attachments/assets/2d42c53f-0117-4fda-98c9-d1deed17c7ff" />
-
+![hi](https://github.com/user-attachments/assets/91e5c6ca-e950-4113-afdc-24d75b51ba15)
+*<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=1000&color=51b9d6&vCenter=true&width=435&lines=they+cannot+see+what+he+can+see;I+cannot+trust+their+words+at+all" alt="Typing SVG" /></a>*
+[strawpage](https://1xjane-ceo.straw.page)
+  
+![rentry-yumyum](https://github.com/user-attachments/assets/fa53b3c5-c233-407b-80b8-58fdab233855)
 
 <div align="center"
 
-  hio wip i sorry..
+  ***HI!!***
 
-![3a16cf12aeaf1fc3dde45148f54f20d9](https://github.com/user-attachments/assets/dd9039ad-c68f-4024-9907-68e3732cc239)
+![rentry-divider](https://github.com/user-attachments/assets/b2cff184-baf8-423d-9a27-a75ab95c2a99)
