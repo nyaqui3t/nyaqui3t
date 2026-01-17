@@ -50,7 +50,7 @@ know you at all/i didn't follow or int first (this is 4 personal safety,,) peopl
  
 ${\textsf{\color{#db2e0f} apple }}$ 
 <br> 
-<img width="90" height="90" alt="tumblr_a8675ae6ce7fa7659fbc524188b8dd3d_ba07013f_400" src="https://github.com/user-attachments/assets/309e5ff4-4b24-4149-9e43-f9f5c984c95b" />
+[<img width="90" height="90" alt="tumblr_a8675ae6ce7fa7659fbc524188b8dd3d_ba07013f_400" src="https://github.com/user-attachments/assets/309e5ff4-4b24-4149-9e43-f9f5c984c95b" />](https://en.wikipedia.org/wiki/Apple)
  </div>
  
 <div>　</div>
