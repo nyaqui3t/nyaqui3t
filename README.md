@@ -44,7 +44,7 @@ please use tonetags when talking to me also !
 **DNI**
 
 ; [normal dni criteria](https://dni-criteria.carrd.co/), if you're 23+ and I don't
-know you at all/i didn't follow or int first (this is 4 personal safety,,) people under 12 ,   meowbahh fans , 
+know you at all/i didn't follow or int first, people under 12 ,   meowbahh fans , 
 
 — — — — — — — — — — — — — —
  
