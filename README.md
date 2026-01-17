@@ -14,11 +14,13 @@
 
 ## about me !
 
-HI!! huge wip sadlyss 3:
+<div>　</div>
 
-infoinfoinfoinfoinfoinfo
+HII! my name's aiko or berri !!
+minor and a person with  DID & ADHD +attachment issues, you can check my prns.cc to know more about my systems ^_^
 
-infoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfo
+ i dont really tell you who's fronting but you either need to guess or ask. , i will SOMETIMES use we/us . 
+please use tonetags when talking to me also !
  
  <div align="center"
   
@@ -27,19 +29,22 @@ infoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfoinfo
 
 ## dni + thin-ice + byi
 
-wipp
+ 
 
 **BYI**
 
-; infoinfoinfoinfoinfoinfo
+; we r Mentally unstable to say the least , and sometimes insensitive .. we usually are slow on understanding stuff . We're also socially awkward i gueess.. also can take many minutes , or even hours to respond to whispers or texts ;-;  
 
 **THIN-ICE**
 
-; infoinfoinfoinfoinfoinfo
+; recovering zoos, proshippers, etc. Age regressors, mha - genshin - dsmp - danganronpa likers (this is based off past experiences so,, iwec unless friends !!)
+
+
 
 **DNI**
 
-; infoinfoinfoinfoinfoinfo
+; [normal dni criteria](https://dni-criteria.carrd.co/), if you're 23+ and I don't
+know you at all/i didn't follow or int first (this is 4 personal safety,,) people under 12 ,   meowbahh fans , you think that most pt systems are fake,
 
 — — — — — — — — — — — — — —
 
