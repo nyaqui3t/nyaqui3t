@@ -37,19 +37,22 @@ please use tonetags when talking to me also !
 
 **THIN-ICE**
 
-; recovering zoos, proshippers, etc. Age regressors, mha - genshin - dsmp - danganronpa likers (this is based off past experiences so,, iwec unless friends !!)
+; recovering zoos, proshippers, etc. Age regressors, mha - genshin - dsmp - danganronpa likers (this is based off past experiences so,, iwec unless friends !!) you think that most pt systems are fake,
 
 
 
 **DNI**
 
 ; [normal dni criteria](https://dni-criteria.carrd.co/), if you're 23+ and I don't
-know you at all/i didn't follow or int first (this is 4 personal safety,,) people under 12 ,   meowbahh fans , you think that most pt systems are fake,
+know you at all/i didn't follow or int first (this is 4 personal safety,,) people under 12 ,   meowbahh fans , 
 
 — — — — — — — — — — — — — —
-
+ 
+${\textsf{\color{#db2e0f} apple }}$ 
+<br> 
+<img width="90" height="90" alt="tumblr_a8675ae6ce7fa7659fbc524188b8dd3d_ba07013f_400" src="https://github.com/user-attachments/assets/309e5ff4-4b24-4149-9e43-f9f5c984c95b" />
  </div>
  
-okk dats all byee !
+<div>　</div>
 
 ![rentry-divider](https://github.com/user-attachments/assets/b2cff184-baf8-423d-9a27-a75ab95c2a99)
